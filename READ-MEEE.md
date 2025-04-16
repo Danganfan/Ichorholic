@@ -22,6 +22,10 @@ hAI HAI HAII! MIAU SPEAKING !!
 
 ★ . ꜝꜞ ᳝ ࣪ so uhm my PT tags .. feel free 2 cuddle and hide BEHIND me , try to interact w caution w me and PLEASE try to avoid covering my skin ON PURPOSE , I have cover discomfort ....
 
+★ . ꜝꜞ ᳝ ࣪ almost of the time afk ..
+
+★ . ꜝꜞ ᳝ ࣪ about PT you MAY see me on the CRK area .. but I'm mainly sleeping on random rocks . i like rocks . i am normally with PV (yellow) or WL (dark green) painted skin ....
+
 ★ . ꜝꜞ ᳝ ࣪ for me it's just the basic DNI list .. but keep I'm mind I'll be uncomfortable if you like ShadowVanilla (or talk anything about it) , likes Okegom and likes HH r HB ...
 
 ★ . ꜝꜞ ᳝ ࣪ I like music and play games .. and I have heavy hyperfixations ( CRK n DR will always be my favs )
