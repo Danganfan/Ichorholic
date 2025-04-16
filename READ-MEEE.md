@@ -24,5 +24,8 @@ hAI HAI HAII! MIAU SPEAKING !!
 
 ★ . ꜝꜞ ᳝ ࣪ the basic DNI list so .... but keep I'm mind I'll be uncomfortable if you like ShadowVanilla (or talk anything about it) , likes Okegom and likes HH r HB .....
 
+★ . ꜝꜞ ᳝ ࣪ I like music and play games .... and I have heavy hyperfixations ( CRK n DR rn )
+
 ⠀⠀ ‌„
 ⠀⠀ ‌„
+
