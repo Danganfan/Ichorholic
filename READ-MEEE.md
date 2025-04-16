@@ -29,3 +29,11 @@ hAI HAI HAII! MIAU SPEAKING !!
 ⠀⠀ ‌„
 ⠀⠀ ‌„
 
+ ▸ . 𖧧 ࣪ my fandoms : CRK , DR , DW ( about to leave ) , Sousou No Frieren , PjSekai , myb Dragon Ball , YTTD , Bandori n more bc i forgot ....
+
+  ▸ . 𖧧 ࣪ I may say my style is scene / emo ..? idk but I like both
+
+   ▸ . 𖧧 ࣪ I love PureLily. like, really 
+   
+⠀⠀ ‌„
+⠀⠀ ‌„
