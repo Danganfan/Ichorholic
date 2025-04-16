@@ -39,3 +39,12 @@ hAI HAI HAII! MIAU SPEAKING !!
    
 ⠀⠀ ‌„
 ⠀⠀ ‌„
+
+ꗃ ⋆ ࣪ . I say "miau" veeeeeery often .. it's nothing I just like saying that , and no I'm not a therian .
+
+ꗃ ⋆ ࣪ .  ooooooo yeah I am a kemonomini but that has nothing to do with what I said earlier okay ....?
+
+ꗃ ⋆ ࣪ . I am a Cosmo ( DW ) and White Lily Cookie FictKin .. my normal kins are imense but mainly Pure Vanilla Cookie and Matcha Cookie ..!
+
+⠀⠀ ‌„
+⠀⠀ ‌„
