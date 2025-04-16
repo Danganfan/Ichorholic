@@ -13,7 +13,9 @@ hAI HAI HAII! MIAU SPEAKING !!
 
 ˗ ˏˋ ⌞⋮ I have ADHD so be patient .ᐟ⌝ ˎˊ˗
 
-˗ ˏˋ ꒰ also I'm shy asf so sorry ... ꒱ ˎˊ˗
+˗ ˏˋ ꒰ discord : ichorholicc ꒱ ˎˊ˗
+
+˗ ˏˋ ⌞⋮ also I'm shy so I'm sorry .ᐟ⌝ ˎˊ˗
 
 †༙ 　 ⁺　﹒ . ⠀ ⠀ ᭪ ⠀ ˓
 
@@ -49,6 +51,15 @@ hAI HAI HAII! MIAU SPEAKING !!
 ꗃ ⋆ ࣪ .  ooooooo yeah I am a kemonomini but that has nothing to do with what I said earlier okay ....?
 
 ꗃ ⋆ ࣪ . I am a Cosmo ( DW ) and White Lily Cookie FictKin .. my normal kins are imense but mainly Pure Vanilla Cookie and Matcha Cookie ..!
+
+⠀⠀ ‌„
+⠀⠀ ‌„
+
+†༙ 　 ⁺　﹒ . ⠀ ⠀ ᭪ ⠀ ˓
+
+if I don't respond don't think I'm ignoring you .. or I'm just afk / sleeping or I'm just awkward enough .. my shyness kills us both ......
+
+†༙ 　 ⁺　﹒ . ⠀ ⠀ ᭪ ⠀ ˓
 
 ⠀⠀ ‌„
 ⠀⠀ ‌„
