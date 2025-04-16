@@ -7,9 +7,13 @@ hAI HAI HAII! MIAU SPEAKING !!
 ⠀⠀ ‌„
 ⠀⠀ ‌„
 
-˗ˏˋ ꒰ You can call Miau ... Miau ! ꒱ ˎˊ˗
+†༙ 　 ⁺　﹒ . ⠀ ⠀ ᭪ ⠀ ˓
+
+˗ ˏˋ ꒰ You can call Miau ... Miau ! ꒱ ˎˊ˗
 
 ˗ ˏˋ ⌞⋮ I have ADHD so be patient .ᐟ⌝ ˎˊ˗
+
+˗ ˏˋ ꒰ also I'm shy asf so sorry .. ꒱ ˎˊ˗
 
 †༙ 　 ⁺　﹒ . ⠀ ⠀ ᭪ ⠀ ˓
 
